@@ -1,1 +1,2 @@
-# kariel-the-warrior
+# Kariel The Warrior
+Après la mort du Roi Démon, seuls les héros subsistent dans un monde devenu instable et incertain. Face au pouvoir vacant qui ne cesse de croître, quelqu'un doit se lever pour combler ce vide.
